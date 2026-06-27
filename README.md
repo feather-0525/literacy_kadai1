@@ -1,1 +1,0 @@
-# literacy_kadai1
